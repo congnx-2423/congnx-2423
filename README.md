@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @congnx-2423
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on it job
+- 📫 How to reach me ..
+
